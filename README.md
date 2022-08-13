@@ -18,6 +18,7 @@
   
 ### Estou sempre buscando algo novo pra aprender, que tal me ajudar ? Me mande uma sugestão. 
    <img align="right" alt="Rafa-pic" height="150" style="border-radius:50px;" src="https://gifs.eco.br/wp-content/uploads/2022/07/gifs-do-l-de-death-note-2.gif">
+   
    ##
  
 <div> 
